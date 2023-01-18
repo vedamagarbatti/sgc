@@ -1,3 +1,5 @@
-# sgc
+# SGC THE BRAND TO SHINE 
+
+## BRINGING BACK NATURAL AND HEALTHY STUFF.
 let's make it
-i'm following my passion.
+I need your support to support you for your good.
